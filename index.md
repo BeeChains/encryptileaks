@@ -8,5 +8,5 @@ Light Shines on the Shadows!!!
 
 - [ShadowGate on NewsWars](https://www.newswars.com/exclusive-deep-state-protection-racket-exposed/)
 
-- [ShadowGate on banned.video](https://banned.video/watch?id=5f37fcc2df77c4044ee2eb03)
-- [webcrypt link](HTTP://WEBCRYPT.ORG/#WXUBODRUUJVSKNCMTMKNYA.PHSFR5OVJIS.+NTRJVMDZSXLDIKRVHBIIN5DAMXTQJSSYWWBJFE2PQFTH8CDEOULVLY2PTN53DUZPWXUGWBKZCKUBZRQKTLOBSWXLDUOJMUDI/B+GQDXT7/SQYOMF+NSN70DTYBWOGA0ERZQVMTFUVLBEAG)
+- [ShadowGate on banned.video use #123GetFree as password for webcrypt](https://banned.video/watch?id=5f37fcc2df77c4044ee2eb03)
+
